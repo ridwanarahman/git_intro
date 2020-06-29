@@ -1,1 +1,2 @@
-Eric Ianni
+Ridwana Rahman
+rahmanr@oregonstate.edu
